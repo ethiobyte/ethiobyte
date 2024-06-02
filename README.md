@@ -2,8 +2,6 @@
 
 🚀 **Driving innovation in Ethiopia with cutting-edge software solutions, IT services, and digital transformation.** 🚀
 
-👨‍💻 **Founded by three passionate software engineers.** 👨‍💻
-
 ---
 
 ### **What We Specialize In:**
